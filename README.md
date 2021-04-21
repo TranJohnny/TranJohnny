@@ -14,7 +14,7 @@
   - In 2015 I was admitted as 1 of 32 actors to one of the nation's most prestigious theatre conservatories
   - In 2020 my team and I were recognized as the top achieving restaurant in the company nationwide
 - 💬 Ask me about: Theatre, Acting, Vietnamese American student-led initiatives, Video Games, Cooking, Baking
-- 📫 How to reach me: [LinkedIn]
+- 📫 How to reach me: [LinkedIn] | thejohnnytran27@gmail.com
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I have hypermobile hand joints!
 
