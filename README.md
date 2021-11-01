@@ -6,7 +6,7 @@
 **TranJohnny/TranJohnny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-- 🔭 I’m currently working on: Looking for employment opportunities at companies seeking a full-stack developer that is passionate about shared leadership and collaboration  
+- 🔭 I’m currently working on: Working as a developer at Citi Bank with a community of engaged and passionate peers.  
 - 🌱 Some of my proudest moments:
   - In 2015 my peers and I were recognized as the preminent Vietnamese/Southeast Asian student organization in North America
   - In 2019 I was the lead actor in the first ever Theatre for Young Audiences production to feature Asian American leads in The Theatre School's 100+ year history
